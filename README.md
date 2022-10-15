@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bitgamer4897
+- 👀 I’m interested in Star Wars, and fan games.
+- 🌱 I’m currently learning how to speak japanese.
+- 📫 How to reach me: bitgamershorts@gmail.com
